@@ -1,0 +1,1 @@
+# MANUAL-DO-HACK-_simples
